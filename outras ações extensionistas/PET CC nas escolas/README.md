@@ -24,4 +24,4 @@ Foi uma experiência enriquecedora e marcante, especialmente por ser a primeira 
 
 ---
 
-> 📸 **Slides e imagens da atividade** estão disponíveis na pasta anexa.
+> 📸 **Slides e imagens da atividade** estão disponíveis na pasta.
